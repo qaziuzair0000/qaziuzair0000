@@ -5,7 +5,6 @@
 - 📫 How to reach me ...
 
 
-vvvvvvvvvvvvvvvvvvvvvvvvvdfffffffffffffbvjbbjnjjjfdjbjvbj
 
 <!---
 qaziuzair0000/qaziuzair0000 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
